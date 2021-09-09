@@ -1,5 +1,7 @@
 ## Heroes for Ghosts
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
+
+![avatar](http://behindthescenes.nyhistory.org/wp-content/uploads/2017/05/3-Brey_Enlist-1.jpg)
 <br>
 <br>
 
